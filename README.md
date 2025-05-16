@@ -1,2 +1,2 @@
-# Sticker Scheme!
+# Sticker Scheme! 🏷️
 
